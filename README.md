@@ -1,14 +1,17 @@
-丁丁视频最新官网 https://ding1.app .txt
+**丁丁視頻最新官網 https://ding1.app
 
 
-最新官网： https://ding1.app ||| 请关注我们随时找到最新域名
+最新官網： https://ding1.app ||| 請關注我們隨時可能找到的最新領域
 
-如有使用上问题请至土豆交流群询问管理
+如果https://ding1.app被封，下個域名https://ding2.app
+
+
+如有使用問題請至土豆交流群諮詢管理
 土豆交流群： https://lynnconway.me/dingdingapp
 
-在线观看（https://ncddh5.xggjwb.club/）
+在線觀看（https://ding1.live）
 
-1. 如果域名被封请访问下个域名https://ncddh5.xggjwb.club/
-2. 无需安装，大陆网络直接观影（网页）
+1.如果域名被封請訪問下個域名ding2.live
+2. 無需安裝，可直接觀看網絡網絡（網頁）
 
-https://ncddh5.xggjwb.club/ 为丁丁H5永久域名，丁友可以翻墙观看，欢迎随时回家
+https://ding666.app 為丁丁H5永恆領域，丁友可以翻牆觀看，歡迎隨時回家**
