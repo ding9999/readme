@@ -3,7 +3,7 @@
 
 最新官網： https://ding1.app ||| 請關注我們隨時可能找到的最新領域
 
-如果https://ding1.app被封，下個域名https://ding2.app
+如果https://ding1.app 被封 下個域名https://ding2.app
 
 
 如有使用問題請至土豆交流群諮詢管理
